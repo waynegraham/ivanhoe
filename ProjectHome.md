@@ -1,0 +1,1 @@
+IVANHOE is an online playspace that facilitates collaborative interpretation. IVANHOE calls attention to interpretation as active intervention in a textual field and promotes self-conscious reflection by returning various visual and textual transformations to the players.  IVANHOE is specially apt for use in small group situations (classroom, small research groups).
